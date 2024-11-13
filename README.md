@@ -4,3 +4,5 @@ Artyom Galushko
 Bomboclat
 CHINCHOPA
 PASHA"S CHANGE!
+
+Strelok Kontuzhen - Razbros uvelichen
